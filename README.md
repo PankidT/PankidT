@@ -7,7 +7,7 @@
 ## This is my contact ☎️
 
 👉 [Facebook](https://www.facebook.com/profile.php?id=100001248298365/) : Poramat Chianvichai<br>
-👉 [Instagram](https://www.instagram.com/por_ppan/) : po_ppan<br>
+👉 [Instagram](https://www.instagram.com/por_ppan/) : por_ppan<br>
 👉 email : poramat.chianvichai@gmail.com or poramat.chi@student.mahidol.edu<br>
 👉 Office : (Quatnum Laboratory 4th floor, Faculty of Science, Mahidol University, Bangkok)<br>
 
