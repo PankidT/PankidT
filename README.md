@@ -1,6 +1,6 @@
 ### Hi, My name is Poramat Chianvichai and you can call me Pan.
 
-🏫 I'm ิachelor's student at Department of Physics, Faculty of Science, Mahidol University, Thailand 🇹🇭
+🏫 I'm Bachelor's student at Department of Physics, Faculty of Science, Mahidol University, Thailand 🇹🇭
 🏢 I'm member at Quantum research group at Mahidol University
 💻 I'm interested in Quantum information, and still learning Quantum Networking
 
