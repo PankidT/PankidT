@@ -7,9 +7,9 @@
 ## This is my contact ☎️
 
 👉 [Facebook](https://www.facebook.com/profile.php?id=100001248298365/)<br>
-👉 [Instagram](por_ppan)<br>
-👉 [Office](Quatnum Laboratory 4th floor, Faculty of Science, Mahidol University, Bangkok)<br>
-👉 [email](poramat.chianvichai@gmail.com) or [email](poramat.chi@student.mahidol.edu)<br>
+👉 [Instagram](https://www.instagram.com/por_ppan/)<br>
+👉 email : poramat.chianvichai@gmail.com or poramat.chi@student.mahidol.edu<br>
+👉 Office : (Quatnum Laboratory 4th floor, Faculty of Science, Mahidol University, Bangkok)<br>
 
 <!---
 PankidT/PankidT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
